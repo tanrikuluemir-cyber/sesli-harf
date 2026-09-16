@@ -1,0 +1,1 @@
+sesli harf sayan kod
